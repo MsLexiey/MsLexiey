@@ -89,4 +89,4 @@ I'm a results-driven analytics professional with 16+ years of experience in glob
 ## 📬 Get in touch
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-alexandra--offei-0077B5?style=flat&logo=linkedin)](https://www.linkedin.com/in/alexandra-offei-6b52383a)
-[![Email](https://img.shields.io/badge/Email-MsLexiey%40aol.com-D14836?style=flat&logo=gmail)](mailto:MsLexiey@aol.com)
+[![Email](https://img.shields.io/badge/Email-MsLexiey%40aol.com-D14836?style=flat&logo=gmail)](mailto:Alexandraoffei@aol.com)
